@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning Machine Learning
 - 💞️ I’m looking to collaborate with peaple like me who are begineers and continously learning ML
-- 📫 How to reach me Discord :- gamer_alpha1
+- 📫 How to reach me Discord :- hadi_rizwan47
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: A teenager who has intrest in AI/ML
 
