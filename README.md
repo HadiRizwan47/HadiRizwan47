@@ -2,4 +2,4 @@
 - ML practitioner & Web developer
 - Building TopSkillr
 - Aspiring Entrepreneur
-- 
+
